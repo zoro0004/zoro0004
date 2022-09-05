@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @zoro0004
+- 👀 I’m interested in AI and neural networks
+- 🌱 I’m currently learning Smart algorithms
+- 💞️ I’m looking to collaborate on 
+- 📫 How to reach me email at kushupreti@gmail.com
+- 
